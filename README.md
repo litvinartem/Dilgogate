@@ -1,2 +1,0 @@
-# Dilgogate
-hjgygohjh
